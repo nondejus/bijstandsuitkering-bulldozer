@@ -1,2 +1,6 @@
 # bijstandsuitkering-bulldozer
+
 2002-2022
+
+# liquidatie
+https://nl.wikipedia.org/wiki/Liquidatie_(moord)
